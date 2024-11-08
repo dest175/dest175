@@ -34,7 +34,7 @@ I'm constantly expanding my skill set and exploring new technologies. As a self-
 Feel free to reach out if you'd like to collaborate or just have a chat about tech! 💬  
 You can find me on:
 
-- 📧 **Email**: [aristides.villegas@example.com](mailto:aristides.villegas@example.com)
+- 📧 **Email**: aristides.villegas.http@gmail.com
 
 ---
 
